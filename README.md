@@ -1,0 +1,1 @@
+# kopdar_bdg
